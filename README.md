@@ -8,4 +8,7 @@ Hello, I'm syukinmei. I remembered my ID wrong and gave you 'syukinmin.' I reali
 
 I look forward to your attention. If I receive it, I will follow you back.
 
+
+syukinmin 🙅
+syukinmei 🙆
 2024-05-08
